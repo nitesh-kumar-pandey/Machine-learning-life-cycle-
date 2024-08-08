@@ -1,0 +1,1 @@
+Delving deeper into the Machine Learning lifecycle during my internship at Upflairs Pvt Ltd Pvt. Ltd. under the invaluable guidance of Ranjit Singh Sir. From data collection to model deployment, every step offers a new challenge and learning opportunity. Excited to continue this journey and apply these skills in real-world scenarios! 🚀
